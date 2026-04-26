@@ -1,0 +1,2 @@
+# spooferCoolOfcolegas
+spoof cu colegas
